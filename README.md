@@ -1,0 +1,2 @@
+# -Projekt_Zastosowanie_AI
+Projekt_Zastosowanie_AI
